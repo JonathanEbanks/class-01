@@ -10,3 +10,7 @@ Some ways to keep in a growth mindset are:
 - Try to realize that if you continue to chip away at an obstacle, you will eventually make it through it.
 
 - Remember that it is difficult to learn new things, but over time with practice they will become easier.
+
+  I am Jonathan Ebanks. I am looking to change careers and I believe that coding would be a career that I could do well in.
+
+My GitHub Profile Page: https://github.com/JonathanEbanks
