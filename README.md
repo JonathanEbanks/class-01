@@ -4,6 +4,7 @@
 
 Some ways to keep in a growth mindset are:
 
+
 -Treat yourself with respect, the same way you would treat a friend that is struggling with a challenge.
 
 -Try to realize that if you continue to chip away at an obstacle, you will eventually make it through it.
